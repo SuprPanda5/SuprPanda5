@@ -1,4 +1,6 @@
-## Hi there 👋
+## 🐼 Howdy Y'all! 🐼
+I have no idea what to work on. 🫠  
+Avid fan of **tøp** |-/ Ψ, **h•a** 💼📞, **AdP** 🔺, **C418** 👍, and maybe a few others.
 
 <!--
 **SuprPanda5/SuprPanda5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
